@@ -1,0 +1,1 @@
+# Kesintisiz-G-Kaynaklar-
